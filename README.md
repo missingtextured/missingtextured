@@ -1,7 +1,7 @@
 
  ![OIP](https://github.com/user-attachments/assets/b95e6fe0-02c3-43b1-863e-464592466570)
 
-my name is Mafioso/terabyte,,  ^__^  he/it
+my name is Mafioso/Selozar (or Zetōzar),,  ^__^  he/it
 
 c+h appreciated !! i love making new frens
 
