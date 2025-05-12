@@ -1,8 +1,17 @@
+# HI IM MAFIOSO I LIKE MAFIOSO HI
 
- ![OIP](https://github.com/user-attachments/assets/b95e6fe0-02c3-43b1-863e-464592466570)
+![](https://komarev.com/ghpvc/?username=your-github-username&abbreviated=true) ??
 
-my name is Mafioso/Selozar (or Zetōzar),,  ^__^  he/it
 
-c+h appreciated !! i love making new frens
+yyyaapppinngg tiemm ^3^
 
-I LOVE MI SILLY HUZZBAND!! HI MAG. 4/20/25 <33 ehe
+![MafiosoRedesignProtoIntro](https://github.com/user-attachments/assets/11b83c08-47df-45af-aecf-144f341f26bf)
+
+
+Hi my name is mafioso but just call me maf for short. I also go by junie ect.  !!! :D
+
+i use he/it pronouns,, maybe a bit of bunny/bunnys n rot/rots if im feeling dubious.
+
+if u couldnt tell i REALLAYYY like mafioso like hes m favorite character ever hes so me.
+
+artist + editor + VA :3
